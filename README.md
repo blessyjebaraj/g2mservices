@@ -59,5 +59,4 @@ This dynamic tool empowers users to make informed decisions and drive impactful 
 
 ---
 
-Let g2m Services be your strategic partner in public sector growth.
 
